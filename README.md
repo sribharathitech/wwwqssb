@@ -1,1 +1,1 @@
-http://technologies.sribharathi.com
+http://technologies.quantumsprings.com
